@@ -1,0 +1,1 @@
+# Szechuan-Mahjong
